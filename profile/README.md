@@ -2,4 +2,4 @@
 
 Traveller from foreign land, there spreads the shade of forest Siago for you.
 
-Ciusemin sea i cuenna, cedo bholintitethulinne melo Siago i buno aie.
+Ciusemin sea i cuenna, cedo aie bholintitethulinne melo Siago i buno.
